@@ -1,1 +1,0 @@
-# ucenjekonstantno
